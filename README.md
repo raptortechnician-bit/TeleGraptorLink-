@@ -1,2 +1,3 @@
-# TeleGraptorLink-
-TeleGraptorLink is a platform which allows promotion of TeleGraptorLink and WhatsApp groups.
+Bro your tg acc delete pls contact 
+telegram id - @Devprimex
+gmail - learnew90@gmail.com
